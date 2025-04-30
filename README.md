@@ -30,7 +30,7 @@ Olá! Eu sou Gabriel V., um entusiasta de tecnologia com foco em desenvolvimento
 
 ## 📬 Contato  
 
-💌 **E-mail profissional:** [help.nexusweb@gmail.com](mailto:help.nexusweb@gmail.com)  
+💌 **E-mail profissional:** [gabriel.vilhena@nexuspt.eu](mailto:gabriel.vilhena@nexuspt.eu)  
 
 ---
 
